@@ -6,4 +6,4 @@ Hai za pa kabs?
 
 Za ini konflik ya
 
-
+Urang bikin di main ya sep
